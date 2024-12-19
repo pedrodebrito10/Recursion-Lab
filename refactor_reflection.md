@@ -1,0 +1,1 @@
+memorizing the codes can help me complete codes faster and this was the biggest challenge. When coding I always had to look back at notes to help me. When I really spent time to memorize it it made things so much easier. 
